@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Solikesh
+- 👀 I’m interested in Software building.
+- 🌱 I’m currently learning network marketing.
+- 💞️ I’m looking to collaborate on building an app to contain my business options.
+- 📫 How to reach me on Whatsapp+237683691937.
+- 😄 Pronouns: Mr.
+- ⚡ Fun fact: I like girls.
